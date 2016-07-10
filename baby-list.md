@@ -20,9 +20,31 @@
 - breast pump for milking (manual is only ok in the beginning, when you don't have lots of milk; later better automatic, otherwise the hands will hurt when pumping)
 - water, some snacks, single-serving plates and glasses (?? probably not necessary)
 - tea for stimulating lactation
-- Propolis (=bee glue) + calendula (=marigold) or resin (for helping the healing)
+- Propolis (=bee glue) + calendula (=marigold) or resin (for helping the healing) cream
 - breastfeeding cushion
 - photo camera S
+- pack in a bag with many pockets, to be able to put baby's stuff and my stuff separately and find them easily (will be useful after birth too)
+- baby clothes (washed!): bodies with legs (several, pee might leak on the legs); 2 hats; gloves (to avoid scratching); clothes for outdoors for when we leave the hospital (don't dress to much or too little!)
+- towels for baby / "carpe finet"
+- diapers new-born size 1
+
 
 
 # For home right after birth 
+- baby bottles for milked milk (always to be sterilized by boiling in water for 5 minutes, and kept in a separate pot with a lid), "tetine"; thermal insulation cover for bottle
+- for butt irritation: Bepanthen, Cutaden, or Calendula cream (should NOT contain boric acid, fenol, or metil salicitat)
+- sterile compressions for the belly button (preferably texture like wet towels, not like "tifon" which can stick), also used to clean eyes and ears
+- sterile solution ("ser fiziologic perfuzabil") 1L, seringes to take it out - for cleaning eyes and ears
+- butt termometer for new-borns
+- sanitary alcohol to sterilize the butt thermometer
+- antibiotic powder to prevent infections (of the belly button?)
+- wet towels (no parfume, no paraben)
+- body moisturizer for baby (no parfume, no paraben) -- babies shed skin in the first 2 weeks, need frequent moisturization
+- washing gel (no parfume, no paraben), functions also as shampoo
+- weak lights, especially on top of the changing table (for night nappy changes)
+- baby nail scissors
+- trash can with lid for dirty nappies on the balcony
+- anti-colic syrup for babies
+- protection layer (with plastic) for the baby bed and for the big bed (they are different, IKEA has both)
+- washing basin (my sister might send the bucket, good for the first months)
+
