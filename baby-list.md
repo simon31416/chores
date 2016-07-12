@@ -27,10 +27,13 @@
 - baby clothes (washed!): bodies with legs (several, pee might leak on the legs); 2 hats; gloves (to avoid scratching); clothes for outdoors for when we leave the hospital (don't dress to much or too little!)
 - towels for baby / "carpe finet"
 - diapers new-born size 1
+- (board) games
+- baby carrier
 
 
 
 # For home right after birth 
+
 - baby bottles for milked milk (always to be sterilized by boiling in water for 5 minutes, and kept in a separate pot with a lid), "tetine"; thermal insulation cover for bottle
 - for butt irritation: Bepanthen, Cutaden, or Calendula cream (should NOT contain boric acid, fenol, or metil salicitat)
 - sterile compressions for the belly button (preferably texture like wet towels, not like "tifon" which can stick), also used to clean eyes and ears
